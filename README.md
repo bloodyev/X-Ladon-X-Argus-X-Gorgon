@@ -45,7 +45,7 @@ tiktok X-Argus X-Ladon X-Gorgon X-Khronos algorithm, device register algorithm
 
 #### user info test
 ### contact me
-**Contact for api :** [https://t.me/bloodyev](https://t.me/bloodyev)
-## telegram: @bloodyev
+**Contact for api :** [https://t.me/Neo_Galaxy](https://t.me/Neo_Galaxy)
+## telegram: @Neo_Galaxy
 
-# [Contact Telegram](https://t.me/bloodyev)
+# [Contact Telegram](https://t.me/Neo_Galaxy)
